@@ -1,2 +1,2 @@
 # mattwilder.net
-political economy|research methods
+political economy | research methods
